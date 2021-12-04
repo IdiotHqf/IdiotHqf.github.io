@@ -1,0 +1,1 @@
+# IdiotHqf.github.io
